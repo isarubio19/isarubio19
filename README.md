@@ -1,4 +1,4 @@
-- 👋 Me chamo Isabella Rubio e tenho 21 anos 
+- 👋 Me chamo Isabella Rubio e tenho 22 anos 
 - 🌱Estudante de Ciencia da Computação na PUCSP
 - 💞️estudando de tudo um pouco sobre tecnologia até decidir qual area seguir  
 
